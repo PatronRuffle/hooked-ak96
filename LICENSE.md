@@ -1,4 +1,4 @@
-#  
+#  hooked Script hidden offers the most advanced hooked Script, with infinite resources and one-hit kill. Perfect for dominating any match.
 
 
 
